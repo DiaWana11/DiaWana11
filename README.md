@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DiaWana11
+- 👋 Hi, I’m DhiaWana
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning how to live when im feeling dead
 - 💞️ I’m looking to collaborate on something that makes me alive
